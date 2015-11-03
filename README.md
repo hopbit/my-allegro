@@ -1,5 +1,5 @@
 # Aukcje #
 
-  - [Canon EOS 500D](http://hopbit.github.io/my-allegro/samsung-galaxy-tab-2/)
+  - [Canon EOS 500D](http://allegro.pl/canon-eos-500d-i5772662754.html)
 
 ---
